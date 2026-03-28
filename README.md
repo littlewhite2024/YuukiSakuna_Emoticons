@@ -3,7 +3,7 @@
 ---
 #### 結城さくな使用過的顏文字
 #### 結城さくなが使った顔文字
-#### Emoticons used by Yuki Sakuna
+#### Emoticons used by Yuuki Sakuna
 
 ![ ](images/1.png)
 
